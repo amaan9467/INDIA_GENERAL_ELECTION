@@ -320,4 +320,4 @@ ________________________________________
 •	📊 Enables easy comparison of party and alliance performance
 •	🧭 Essential for case studies, electoral strategy, and journalistic reporting
 
-DRIVE LINK OF THE WORD DOCUMENT - https://docs.google.com/document/d/1U6YBlZbsNShS_k6WqaCCFVdeX0XhbA8C/edit?usp=drive_link&ouid=113095462736008001093&rtpof=true&sd=true
+DRIVE LINK OF THE WORD DOCUMENT - https://docs.google.com/document/d/1y6W24G6bXZjz8y8RQNsQjd9FDIBeZm7b/edit?usp=drive_link&ouid=113095462736008001093&rtpof=true&sd=true
